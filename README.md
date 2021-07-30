@@ -6,9 +6,9 @@
 - 💞️ _I’m looking to collaborate_ in hot orgies...
 - 📫 _How to reach me_ ... seriously, if you found my GitHub, contact me on my twitter https://twitter.com/Clare3Dx
 - 😄 _Pronouns:_ entirely up to you.
-- 🍕 _Favorite Pizza Topping:_ Ham, Beef, Pepperoni (sorry, Miki3dx) & Béarnaise sauce
 - 💬 _Ask me about_ something else...
 - ⚡ _Fun fact:_ I am really a very serious person.
+- 🍕 _Favorite Pizza Topping:_ Ham, Beef, Pepperoni (sorry, Miki3dx) & Béarnaise sauce
 - 🍭 _Favorite Jelly Belly flavor:_ Piña Colada, I am a sucker for Piña Colada!!
 - 🥜 _Crunchy or smooth peanut butter:_ I've never tried peanut butter...
 
